@@ -1,4 +1,0 @@
-- `behenchod` - Sister fucker.  
-- `betichod` - Daughter fucker.  
-- `chutiya` - Pussy.  
-- `gaand` - asshole.  
