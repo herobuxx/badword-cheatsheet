@@ -1,6 +1,6 @@
 # Badword Cheatsheet
 
-As a guidance to rant in other languages or keeping yourself safe from being trolled.
+As a guidance to rant in other languages or keep yourself safe from being trolled.
 
 ## Contribute
 
