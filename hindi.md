@@ -1,4 +1,43 @@
-- `behenchod` - Sister fucker.  
-- `betichod` - Daughter fucker.  
-- `chutiya` - Pussy.  
-- `gaand` - asshole.  
+- `aad/aand` - Balls/Testicles/Eggs.
+- `bakchod` - Blabbermouth/Talks alot.
+- `bakrichod` - Goat Fucker.
+- `behenchod/bc` - Sister fucker.
+- `bhosdike` - Son of a bitch/whore.
+- `bhosdiki` - Daughter of a bitch/whore.
+- `bhosdiwala(wale)` - Husband of a bitch/whore.
+- `betichod` - Daughter fucker.
+- `bevda/bevdey` - Alcoholic.
+- `bewakoof` - Idiot/Fool.
+- `chhod` - Fuck.
+- `chod` - Fucker
+- `chudwane` - Going to get fucked.
+- `chaat` - Lick.
+- `choot/chut/chute` - Pussy.
+- `chutia/chutiya` - Pussy. (refering to you as one.)
+- `fattu` - Timid
+- `gand/gaand`- Ass/Butt/Rump.
+- `gand maar` - Masturbate(ing).
+- `gand marvao` - Get yourself Masturbated.
+- `gandu` - Asshole.
+- `gadha/gadhe` - Ass/Donkey
+- `gadhalund` - Penis of the aforementioned donkey.
+- `goo/gu` - Shit.
+- `gote/gotey` - Balls/Testicles.
+- `hagne(y)` - to excrete.
+- `harami` - Bastard
+- `haramkhor` - Useless.
+- `kutta/kutte(y)` - Dog.
+- `kutia/kuttiya/kutti` - Bitch.
+- `laude(y)/lauda/ling/loda/lode/lund/launda/lulli` - Dick/Penis.
+- `laundi/laundiya (sometimes 'a' is swapped with an 's')` - Prostitute.
+- `madarchod/mc` - Motherfucker. (many permutations of this exist like with `chut` etc.
+- `moot(ne)/mut` - Pee.
+- `mooth/muth` - Masturbate.
+- `nunnu` - Micropenis.
+- `peshaab` - Pee.
+- `randi` - Whore/Slut/Prostitute.
+- `randi rona` - Bitching.
+- `suar` - Pig.
+- `tatti` - Shit.
+- `tatte` - Shit. (refering to you as one.)
+- `ullu` - Idiot. (relatively tame, kids use it alot.)
