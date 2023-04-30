@@ -17,7 +17,7 @@
 - `fattu` - Timid
 - `gand/gaand`- Ass/Butt/Rump.
 - `gand maar` - Masturbate(ing).
-- `gand marvao` - Get yourself Masturbated.
+- `gand marvao` - Generally means to fuck off and mind your own business. `Literal Translation: Get yourself Masturbated`
 - `gandu` - Asshole.
 - `gadha/gadhe` - Ass/Donkey
 - `gadhalund` - Penis of the aforementioned donkey.
