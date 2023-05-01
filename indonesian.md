@@ -12,3 +12,9 @@
 - `baruak/beruk` - Some species of primate. 
 - `kalera` - Actually a disease.  
 - `bapak lo/apak ang` - Literally means your dad.  
+- `jancok/jancuk` - An angry expression like `bastard`.  
+- `lonte` - A prostitute.  
+- `landeh` - A pig.  
+- `cirik` - Poop/shit.  
+- `kalempong` - Dick.  
+- `lancik` - Anua.  
