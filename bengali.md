@@ -1,0 +1,32 @@
+- `abal` - Stupid.
+- `bokachoda` - Stupid Fucker/DumbFuck.
+- `baal` - Pubic hair/hairs of balls.
+- `baal chhero` - Tear your ball hair.
+- `bara` - Cock/Dick
+- `boltu` - Same a `bara` means Dick.
+- `boltu chire nebo` - I will cut your dick.
+- `chechra` - A Pevert.
+- `choda` - Common word as `chod` means fuck.
+- `chudanir chele` - Son of a fucker or Result of fuck(Son).
+- `chudi` - Fuck You.
+- `gaar` - balls similar to hindi word `gaand`.
+- `gaar mara` - Generally means to fuck off and mind your own business.
+- `gud/guod` - Pussy.
+- `gud marani` - Pussy Fucker.
+- `gudir bhai` - Brother of Pussy.
+- `gudir beta` - Son of a Pussy.
+- `handle` - Masturbate.
+- `handle maar` - To Masturbate/Go and Masturbate.
+- `kelane` - People who smile evertime in inappropriate/unwanted times.
+- `khanki` - Prostitute/Slut.
+- `khankir/rendir chele` - son of a slut.
+- `kuttar baccha` - son of a bitch.
+- `kelachoda` - No proper meaning but when a person who is given a work by another person couldn't fulfill the work properly as asigned/called as `kelachoda`
+- `pod/pood` - Ass.
+- `pood marani` - ass fucker.
+- `rendi` - slut.
+- `suarer nati` - grandson of pig.
+- `suarchod` - pig fucker.
+- `tor pod mari` - i will fuck in your ass.
+- `tor maa k chudi` - i will fuck your mom.
+- `tor maaer gud` - your mom's pussy.
